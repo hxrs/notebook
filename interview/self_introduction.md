@@ -1,5 +1,4 @@
 ## Self Introduction
-1. ΪʲôÊÕ¸ö¾
-2. ΪʲôÊÕ¸ö»
-3. ΪʲôÊÎ  
-
+1. Why this company?
+2. Why this position?
+3. Why me?
